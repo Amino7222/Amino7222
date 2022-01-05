@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Amino7222
+- 👀 im interested in pentest
+- 💫 if you like my projects, please give star ✨
